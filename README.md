@@ -1,5 +1,5 @@
 - Heya I’m @TeChuuuu :3
-- Just a femboy interested in coding (I currently suck at coding)
+- Just a femboy interested in coding (I suck at coding)
 - Pronouns: he/him
 
 <!---
