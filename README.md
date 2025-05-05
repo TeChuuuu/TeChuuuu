@@ -1,6 +1,6 @@
 - Heya I’m @TeChuuuu :3
 - Just a femboy interested in coding (I suck at coding)
-- Pronouns: he/him
+- Pronouns: any
 
 <!---
 TeChuuuu/TeChuuuu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
